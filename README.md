@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AnnaLizzy
-- 👀 I’m interested in play game
+- 👀 I’m interested in playing game
 - 🌱 I’m currently learning fontend
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me ....nothing
