@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **frontend**
 
-- 📫 How to reach me **thuthuha29@gmail.com**
+- 📫 How to reach me **Email**
 
 - ⚡ Fun fact **I think I funny :>**
 <h3 align="left">Connect with me:</h3>
